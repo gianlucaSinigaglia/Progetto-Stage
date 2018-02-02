@@ -1,2 +1,2 @@
 # Progetto-Stage
-Alessio - Camilla - Gianluca - Michael -
+Alessio - Camilla - Gianluca - Michael 
