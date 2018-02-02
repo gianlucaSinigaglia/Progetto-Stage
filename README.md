@@ -1,2 +1,2 @@
 # Progetto-Stage
-Alessio - Camilla - Gianluca - Micheal 
+Alessio - Camilla - Gianluca - Michael Jackson 
